@@ -1,0 +1,2 @@
+# Building_LLM_From_Scratch_to_follow_the_Rat_race
+Let's follow the rat race boissssssssssssssssss
